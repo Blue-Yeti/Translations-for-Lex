@@ -1,2 +1,1 @@
-# Translations-for-Lex
-Translations for Lex 
+English is my 3rd language.
