@@ -16,3 +16,5 @@ In the mp3 folder you can hear me reading the original English texts.
 Do not hesitate to send me any test assignments.
 
 36 y.o. Kharkiv, Ua.
+<br><br>
+Ps: if you need help with interview prep like: translating/summarizing videos by prominent Ukrainian/Russian leaders/opinion-makers/journalists/influencers I can gladly do it as well.
