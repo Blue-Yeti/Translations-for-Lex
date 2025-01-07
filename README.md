@@ -10,3 +10,5 @@ In the mp3 folder you can hear me reading the original English texts.
 “Squirrels are exciting!.mp3” is special, it’s LLM reading/singing the pdfs/Squirrels.pdf and it does it way better than I ever could.
 <br>
 Do not hesitate to send me any test assignments.
+
+36 y.o. Kharkiv, Ua.
